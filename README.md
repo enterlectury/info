@@ -1,5 +1,6 @@
 ### Hi there, I'm KARAN CHAUDHARY - aka [0xKaran](https://twitter.com/0xKaran) 👨‍💻
 
+![dp1](https://www.chromethemer.com/wallpapers/chromebook-wallpapers/images/960/tanjiro-kamado-chromebook-wallpaper.jpg)
 ![tanjiro](https://i.makeagif.com/media/1-22-2023/3eUm0d.gif)
 ![Hacker](	https://i.pinimg.com/originals/69/32/87/693287c49616b5a2e4cefdbafb5e4195.gif)
 
