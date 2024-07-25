@@ -1,6 +1,8 @@
 ### Hi there, I'm KARAN CHAUDHARY - aka [0xKaran](https://twitter.com/0xKaran) 👨‍💻
 
+![tanjiro](https://i.makeagif.com/media/1-22-2023/3eUm0d.gif)
 ![Hacker](	https://i.pinimg.com/originals/69/32/87/693287c49616b5a2e4cefdbafb5e4195.gif)
+
 
 ## I'm a Cyber Security Enthusiast!
 
