@@ -1,4 +1,4 @@
-### Hi there, I'm KARAN CHAUDHARY - aka [0xKaran](https://twitter.com/0xKaran) 👨‍💻
+### Hi there, I'm ADITYA KUMAR - aka [enterlectury](https://twitter.com/enterlectury) 👨‍💻
 
 ![spidey](https://64.media.tumblr.com/3ab4d5d2118443aec60cf859efb2535c/tumblr_o3uhf3pHCE1u5iipuo3_500.gifv)
 ![captain america](https://64.media.tumblr.com/634bbd9d25ad6e157921dcbeef72e8ab/b6a91406fc918c46-f1/s400x600/088f89f66a0d81a0f2f6a458acffcd414c526445.gif)
